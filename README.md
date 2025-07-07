@@ -15,6 +15,6 @@
 我们的目标是提供高清、流畅、无广告、免注册、完全免费的最佳观看体验，满足你的所有观影需求
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/pk20250707/pk01 ）</span>
 
 
